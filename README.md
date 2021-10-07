@@ -1,0 +1,1 @@
+# 121_enerjisa_bootcamp_Gulsah_Ugur-homework_1.pynb
